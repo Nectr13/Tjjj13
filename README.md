@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Tjjj13
+- 👀 I’m interested in OMORI, (the best game of all time) brb. (possible best band), and soccer (definitely the best sport
+- 🌱 I’m currently learning nothing...I have no idea what I'm doing here
+- 💞️ I’m looking to collaborate on nothing, good luck thought
+- 📫 How to reach me ... you can use tjtorregrossa@gmail.com, but also why are you here?
